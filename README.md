@@ -1,0 +1,1 @@
+# syazaaida_individu
